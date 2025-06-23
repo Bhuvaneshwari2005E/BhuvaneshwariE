@@ -1,8 +1,3 @@
-# BhuvaneshwariE
-VH12339 HARINI S <vh12339_cse22@velhightech.com>
-2:05 PM (1 hour ago)
-
-to Bhuvana
 
 # Hi 👋, I'm Bhuvaneshwari E
 ### Aspiring Data Anayst
